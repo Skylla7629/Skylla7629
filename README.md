@@ -2,7 +2,7 @@
 
 - 👀 I’m interested in ...
 
-atm I'm doing only school related and private projects but there is a plan to make some small games which i might publicise (:
+atm I'm doing only school related and private projects but there is a plan to make some small games which I might publicise (:
 
 
 - 🌱 I’m currently learning ...
